@@ -1,1 +1,1 @@
-# QWERX
+# 12.09.18 repo QWERX zostalo zarchiwizowane, i dostepne jest jedynie manualnie dla innych developerow jako materialy do nauki nie ma linku do korzystania z niego, podziekowania prosze kierowac do Boniego i ekipy PO z PE oraz innych poslow glosujacych za ACTA2
